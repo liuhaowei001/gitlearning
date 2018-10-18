@@ -3,7 +3,7 @@ God keep my head.
 So pull me up from under blow.
 What I believe
 All my friends have gone away
-You don't have to throw your life away.
+I don't have to throw my life away.
 Deja Vu
 Afterlife
 I'm working.
